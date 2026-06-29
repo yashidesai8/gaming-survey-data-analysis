@@ -1,5 +1,4 @@
-# A Study on Impact and Consequences of Selective Marketing 
-# on Gen Z (1997–2012) for Gaming Industry in Surat City
+# A Study on Impact and Consequences of Selective Marketing on Gen Z (1997–2012) for Gaming Industry in Surat City
 
 ## Overview
 This research explores how selective marketing strategies impact 
